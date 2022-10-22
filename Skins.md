@@ -1,5 +1,5 @@
 # generic npc osu skins
-my main skins
+my skins
 # [rafis subahibi](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw)
 ![](https://osu.ppy.sh/ss/18207279/4f2b)
 # [skill edit](https://yeahyeahhyeahh.s-ul.eu/ROtIiF1g)
