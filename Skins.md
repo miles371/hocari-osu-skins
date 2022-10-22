@@ -1,5 +1,5 @@
-# zyh-osu-skins
-zyh's osu! skins
+# hocari-osu-skins
+my main skins
 # [mathi boop](https://www.mediafire.com/file/uhko958cpdpuj90/mathi+boop.osk/file)
 ![](https://osu.ppy.sh/ss/17401681/fe20)
 # [MonkoEdit+zyh](https://zyh.s-ul.eu/g0Skgaqz)
