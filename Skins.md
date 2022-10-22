@@ -1,6 +1,6 @@
 # hocari-osu-skins
 my main skins
-# [rafis subahibi]([https://www.mediafire.com/file/uhko958cpdpuj90/mathi+boop.osk/file](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw))
+# [rafis subahibi]([https://yeahyeahhyeahh.s-ul.eu/VD8Osovw])
 ![](https://osu.ppy.sh/ss/18207279/4f2b)
 # [MonkoEdit+zyh](https://zyh.s-ul.eu/g0Skgaqz)
 ![](https://osu.ppy.sh/ss/17754239/4179)
