@@ -8,6 +8,8 @@ my skins
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
 ![](https://osu.ppy.sh/ss/18207322/abe7)
+# [tekkito](https://yeahyeahhyeahh.s-ul.eu/KMVrv04f)
+![](https://osu.ppy.sh/ss/18207513/588c)
 # [rafis subahibi](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw)
 ![](https://osu.ppy.sh/ss/18207279/4f2b)
 # [Rafis 2018-03-26 HDDT](https://yeahyeahhyeahh.s-ul.eu/j3RVP9zO)
