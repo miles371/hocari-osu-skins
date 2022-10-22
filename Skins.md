@@ -21,6 +21,9 @@
 # [tekkito](https://yeahyeahhyeahh.s-ul.eu/KMVrv04f)
 ![](https://osu.ppy.sh/ss/18207513/588c)
 
+# [euphorium](https://b.catgirlsare.sexy/QvtmGS29.osk)
+![](https://camo.githubusercontent.com/b22dff58aa08de847ee08ca25f25af83318f58e7bb741fe7e7d9f9c3c1047b62/68747470733a2f2f692e696d6775722e636f6d2f613343563179422e706e67)
+
 # [rafis subahibi](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw)
 ![](https://osu.ppy.sh/ss/18207279/4f2b)
 
