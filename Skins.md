@@ -2,6 +2,8 @@
 my main skins
 # [rafis subahibi](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw)
 ![](https://osu.ppy.sh/ss/18207279/4f2b)
+# [skill edit] ()
+![](https://osu.ppy.sh/ss/18207457/1525)
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
