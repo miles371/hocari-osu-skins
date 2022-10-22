@@ -3,6 +3,9 @@
 # [skill edit](https://yeahyeahhyeahh.s-ul.eu/ROtIiF1g)
 ![](https://osu.ppy.sh/ss/18207457/1525)
 
+# [aristekk](https://mega.nz/file/Cq5FEK7A#8-GUO9q9UDmgaPh4maFex1C3AEonL0AKBFrBPnPf0T0)
+![](https://osu.ppy.sh/ss/18207529/9d40)
+
 # [hisui no machi](https://yeahyeahhyeahh.s-ul.eu/qZyCqJZN)
 ![](https://osu.ppy.sh/ss/18207496/a5bc)
 
