@@ -10,7 +10,7 @@
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 
 # [xact (yellow)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
-![](https://imgur.com/fJUxNN0)
+![](https://i.imgur.com/fJUxNN0.png)
 
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
 ![](https://osu.ppy.sh/ss/18207322/abe7)
