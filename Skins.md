@@ -12,9 +12,6 @@
 # [angel adamqs](https://yeahyeahhyeahh.s-ul.eu/mFpWbP9y)
 ![](https://osu.ppy.sh/ss/18209205/564f)
 
-# [enri youtube remake (upload image when im home)](https://mega.nz/file/aMtgVTJT#hnzhC5JIF_Kx0mgZrMwRVoCKjn-zLF19m0Qoi_9s4hQ)
-
-
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 
