@@ -16,7 +16,7 @@
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 
-# [dj STEINER SUPER PRIVATE (private LOLLL)]
+# [dj STEINER SUPER PRIVATE](https://yeahyeahhyeahh.s-ul.eu/m9MsIOEl)
 ![](https://osu.ppy.sh/ss/18222019/0973)
 
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
