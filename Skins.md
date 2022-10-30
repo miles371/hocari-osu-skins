@@ -1,5 +1,6 @@
 # generic npc osu skins
 # my skins
+
 # [skill edit](https://yeahyeahhyeahh.s-ul.eu/ROtIiF1g)
 ![](https://osu.ppy.sh/ss/18207457/1525)
 
@@ -15,14 +16,11 @@
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
 
-# [xact (yellow)](https://cdn.discordapp.com/attachments/878013440810172456/998513299794706432/xact.osk)
-![](https://i.imgur.com/fJUxNN0.png)
+# [dj STEINER SUPER PRIVATE (private LOLLL)]
+![](https://osu.ppy.sh/ss/18222019/0973)
 
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
 ![](https://osu.ppy.sh/ss/18207322/abe7)
-
-# [tekkito](https://yeahyeahhyeahh.s-ul.eu/KMVrv04f)
-![](https://osu.ppy.sh/ss/18207513/588c)
 
 
 # [rafis subahibi](https://yeahyeahhyeahh.s-ul.eu/VD8Osovw)
