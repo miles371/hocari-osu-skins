@@ -10,14 +10,9 @@
 # [hisui no machi](https://yeahyeahhyeahh.s-ul.eu/qZyCqJZN)
 ![](https://osu.ppy.sh/ss/18207496/a5bc)
 
-# [angel adamqs](https://yeahyeahhyeahh.s-ul.eu/mFpWbP9y)
-![](https://osu.ppy.sh/ss/18209205/564f)
 
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
-
-# [dj STEINER SUPER PRIVATE](https://yeahyeahhyeahh.s-ul.eu/m9MsIOEl)
-![](https://osu.ppy.sh/ss/18222019/0973)
 
 # [Rafis Hana Ichinose](https://yeahyeahhyeahh.s-ul.eu/PC0Uzozw)
 ![](https://osu.ppy.sh/ss/18207322/abe7)
