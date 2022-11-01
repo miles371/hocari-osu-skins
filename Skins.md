@@ -1,5 +1,5 @@
 # generic npc osu skins
-# my skins
+# my public skins
 
 
 # [aristekk no playfield](https://yeahyeahhyeahh.s-ul.eu/g0sb2vby)
