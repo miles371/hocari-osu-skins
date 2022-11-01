@@ -1,15 +1,12 @@
 # generic npc osu skins
 # my skins
 
-# [skill edit](https://yeahyeahhyeahh.s-ul.eu/ROtIiF1g)
-![](https://osu.ppy.sh/ss/18207457/1525)
 
 # [aristekk no playfield](https://yeahyeahhyeahh.s-ul.eu/g0sb2vby)
 ![](https://osu.ppy.sh/ss/18207529/9d40)
 
 # [hisui no machi](https://yeahyeahhyeahh.s-ul.eu/qZyCqJZN)
 ![](https://osu.ppy.sh/ss/18207496/a5bc)
-
 
 # [arnold white](https://yeahyeahhyeahh.s-ul.eu/RRwIH7So)
 ![](https://osu.ppy.sh/ss/18207291/99a2)
