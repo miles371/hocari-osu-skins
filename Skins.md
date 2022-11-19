@@ -1,4 +1,3 @@
-# generic npc osu skins
 # my public skins
 
 
